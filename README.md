@@ -1,4 +1,4 @@
-# Gori joon
+# Gorji joon
 
 Chetori goorji joon?
 :)
